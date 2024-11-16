@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Cookies402
+- 👀 I’m interested in making money
+- 🌱 I’m currently learning C++
+- 💞️ I’m looking to collaborate with Artist who can help me with Game Development
+- 📫 Feel free to reach me at Cookies402@proton.me
+- 😄 Pronouns: Nuclear/Warhead
+- ⚡ Fun fact: I am not actually a nuclear warhead its just my pronouns
